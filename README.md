@@ -1,2 +1,2 @@
 # blazingembers.github.io
-Public portfolio
+Public portfolio. More to come!
